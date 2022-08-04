@@ -1,2 +1,2 @@
-# Vict-ria
+# Victória
 Trabalho PC Victória e equipe
